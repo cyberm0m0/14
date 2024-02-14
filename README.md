@@ -1,4 +1,1 @@
-There's one question I really want you to answer but unfortunately you can't. I know that I should keep my distance whatever your answer is, I don't want to pressure on you, perhaps magiging satellite muna ako for a while... 
-
-I'll close my eyes and mouth zipped muna me. You know my motives naman na, bigyan mo na lang ako ng sign kapag ready ka na magtake ng risk and magkaroon ng additional responsibility.
-tyt
+VGhlcmUncyBvbmUgcXVlc3Rpb24gSSByZWFsbHkgd2FudCB5b3UgdG8gYW5zd2VyIGJ1dCB1bmZvcnR1bmF0ZWx5IHlvdSBjYW4ndC4gSSBrbm93IHRoYXQgSSBzaG91bGQga2VlcCBteSBkaXN0YW5jZSB3aGF0ZXZlciB5b3VyIGFuc3dlciBpcywgSSBkb24ndCB3YW50IHRvIHByZXNzdXJlIG9uIHlvdSwgcGVyaGFwcyBtYWdpZ2luZyBzYXRlbGxpdGUgbXVuYSBha28gZm9yIGEgd2hpbGUuLi4gCgpJJ2xsIGNsb3NlIG15IGV5ZXMgYW5kIG1vdXRoIHppcHBlZCBtdW5hIG1lLiBZb3Uga25vdyBteSBtb3RpdmVzIG5hbWFuIG5hLCBiaWd5YW4gbW8gbmEgbGFuZyBha28gbmcgc2lnbiBrYXBhZyByZWFkeSBrYSBuYSBtYWd0YWtlIG5nIHJpc2sgYW5kIG1hZ2thcm9vbiBuZyBhZGRpdGlvbmFsIHJlc3BvbnNpYmlsaXR5Lgp0eXQ=
